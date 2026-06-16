@@ -1,0 +1,1 @@
+# Core-Idea-Of-Vendor-Performance-Analyst-Projects
